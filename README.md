@@ -2,6 +2,8 @@
 CryptoTrades on Expance
 
 
+
+
 I cannot stress enough, this is just a game, please do not make these tokens overpriced, I can only mint one at a time, so pushing the price to a user-friendly rate is quite difficult and time consuming. I want people to have fun, and make a small amount of money, I do not want to click the mint button 100k times lol.
 
 
