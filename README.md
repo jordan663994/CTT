@@ -1,5 +1,5 @@
 # CTT
-CryptoTrades on Expance
+CryptoTrades on Expanse
 
 
 
